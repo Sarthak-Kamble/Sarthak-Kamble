@@ -1,4 +1,4 @@
-![ca262e0354eea311c41134c3e4bc3bc2](https://github.com/user-attachments/assets/6ee3b067-9b45-4eec-8e6c-0a970037bd48)
+<img width="960" height="540" alt="5a8029d622d15914e020276a69578e51" src="https://github.com/user-attachments/assets/d60a32b7-3c2d-49f8-9960-f9742de6f6c5" />
 
 <h1> 🚀 About me </h1> 
 
